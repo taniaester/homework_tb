@@ -14,3 +14,4 @@ _italic_
 3. Third
 + unordered
 - unordered
+```зачеркнуть```
