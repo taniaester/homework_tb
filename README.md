@@ -4,7 +4,7 @@
 + *До **11-ти лет** я верила в **Деда Мороза**, потому что каждый канун Нового Года отец наряжался им и приносил мне подарки.*
 + *Я никогда не ревновала родителей к **младшей сестренке**, потому что знала, что нас всегда будут любить одинако.*
 + *Мое любимое домашнее животное - **собака**. Порода - **лабрадор**.* 
-![](http://yandex.ru/clck/jsredir?from=yandex.ru%3Bimages%2Fsearch%3Bimages%3B%3B&text=&etext=1671.3CwkKjgQgLTQSJAoIxzE6-qSI15gUpDJwsUoQZlvfnkWuEP38cHy2_RQKoTQhbTu.0e90b50572dce026f2e76e6feac513ff2f0e9c39&uuid=&state=tid_Wvm4RM28ca_MiO4Ne9osTPtpHS9wicjEF5X7fRziVPIHCd9FyQ,,&data=UlNrNmk5WktYejR0eWJFYk1LdmtxcjRUZ3c3SzVhYkZ5UlJtWWR5NHM5VHVWekViNVRJaUx3Wkg2WmhtNnN0bFRuUmFLY2xha0tnN3lHVDVyTHFUbURScHY0d21YUXBXMmdGemVtakEwSFFSSXFxOTB0VDFPVFl3Y013NjgzOUJ1SVFOVXRJLU5FOTg4eHZoVXlmSEJKWHA2OU5XN3lPMXMzNnVPNkh3eGRGVUxLWjRZZ21OczdQal9TaF9kZm1LVmVhdFdjd3Foek1BdDdOS2tBLVFYSWJQdGt1c3Y5RHNMdlN4Wk5oZGQ3TmE3S3d5bDlhbi1fZEhFZjU2TE51Tjd1SWQtcHM1Vkt0UmRSajZIaC04SVVtT1BtQnpkaHNfOGxIb0Z2UFlHOW1QVmpuTXZESGtSeVJqODRTd2FydDhGRFZOajkzZndHcTRUcVBFOEpublJ6cTF3SmU3QnVMazVfUGxrRjNFUVZFcXNacmNZVnoxa1EsLA,,&sign=ba6e358bedb732ab29198314174f8b33&keyno=0&b64e=2&l10n=ru)
+![](https://yandex.ru/images/search?source=wiz&text=%D0%BB%D0%B0%D0%B1%D1%80%D0%B0%D0%B4%D0%BE%D1%80%20%D1%84%D0%BE%D1%82%D0%BE&noreask=1&img_url=https%3A%2F%2Fotvet.imgsmail.ru%2Fdownload%2F36062854_41b6fc47c0522cc7be2f797645761e7f_800.jpg&pos=7&rpt=simage&lr=213)
 + *Пока все мои подруги играли в куклы, я воображала себя **мушкетером** и мечтала попасть в мир героев **Александра Дюма**.*
 + *С раннего детства я обожала **читать** и до сих пор нахожу в этом занятии огромное удовольствие.*
 + ~~*Я никогда не ездила в летний лагерь*~~ *(ложный факт)*
