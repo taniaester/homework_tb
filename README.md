@@ -14,4 +14,5 @@ _italic_
 3. Third
 + unordered
 - unordered
-""зачеркнуть""
+hse.ru
+[HSE](https://www.hse.ru/)
